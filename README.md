@@ -21,5 +21,5 @@ Feel free to explore the repository, provide feedback, or connect with me for fu
 
 For any inquiries or collaborations, feel free to reach out
 
--Email ---- abhrajyoti360@gmail.com
--Linkedin ----- www.linkedin.com/in/cruel-p-615970378
+- Email ---- abhrajyoti360@gmail.com
+- Linkedin ----- www.linkedin.com/in/cruel-p-615970378
